@@ -1,2 +1,0 @@
-# Lakshya-
-TRAMBH FREGANCES 
